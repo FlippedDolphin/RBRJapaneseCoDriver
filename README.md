@@ -2,4 +2,4 @@
 Japanese Co-Driver MOD for Richard Burns Rally
 
 Sound Sample
-https://studio.youtube.com/video/AWgInAmfvD4/
+https://www.youtube.com/watch?v=AWgInAmfvD4
